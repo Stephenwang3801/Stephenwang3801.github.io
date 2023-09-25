@@ -22,3 +22,25 @@ this repo is a clone of https://github.com/varadbhogayata/varadbhogayata.github.
 
 # Activity-3
 
+<img width="714" alt="Screenshot 2023-09-25 at 7 08 14 PM" src="https://github.com/Stephenwang3801/Stephenwang3801.github.io/assets/25191547/b189ae9a-af8d-4827-9611-ccd8baa3c64f">
+
+<img width="1440" alt="Screenshot 2023-09-25 at 7 06 50 PM" src="https://github.com/Stephenwang3801/Stephenwang3801.github.io/assets/25191547/3a7b79e2-0c21-4cef-9ba5-0a57f4017c6c">
+
+<img width="1440" alt="Screenshot 2023-09-25 at 7 06 55 PM" src="https://github.com/Stephenwang3801/Stephenwang3801.github.io/assets/25191547/7fa8371c-bc30-4cc5-bad3-e33030cc4c4d">
+
+<img width="1440" alt="Screenshot 2023-09-25 at 7 07 02 PM" src="https://github.com/Stephenwang3801/Stephenwang3801.github.io/assets/25191547/89302b7e-a58f-4553-8248-6c4313abc670">
+
+<img width="1440" alt="Screenshot 2023-09-25 at 7 07 06 PM" src="https://github.com/Stephenwang3801/Stephenwang3801.github.io/assets/25191547/a046fb51-e6be-485b-857a-fbf17f812847">
+
+# Activity-4
+
+
+
+
+
+
+
+
+
+
+
